@@ -1,4 +1,4 @@
-Hi, Im Hawinurtama Auliyah who currently a student at Bina Nusantara University majoring in computer science. 
+Hi, Im Hawinurtama Auliyah who currently a student at Bina Nusantara University majoring in computer science with currently 3.34 GPA. 
 Im An active Students Majoring in Computer science who’s curious and continues to learn in order to develop soft skills and hard skills :
 · Teamwork, Time management, Organizational, Communication
 · Computer Skills (Word and Power Point), Programming Skills (C, SQL, HTML, Android Studio)
